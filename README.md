@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @djketcat
 - 👀 I’m interested in art music musicproduction overtones spirituality shamanism and especially in HEALING.
 - 🌱 I’m currently learning life and time management, ai coding etc..
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on music/art/healing projects.
 - 📫 How to reach me https://www.twitch.tv/djketcat77
 
 <!---
